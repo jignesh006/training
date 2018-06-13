@@ -1,3 +1,3 @@
 # training
 training....
-gtgtgtgtgtgtg
+gtgtgtgtgtgxsxsxsxtg
